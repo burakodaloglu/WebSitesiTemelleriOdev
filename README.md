@@ -1,0 +1,2 @@
+# WebSitesiTemelleriOdev
+ 20MY03032BurakKodaloğlu
